@@ -4,9 +4,9 @@ Hi, I’m @lm108109.
 
 ✨Passionate About Learning & Innovation
 
-🌱 On a never-ending quest through the world of computer science— sharpenig my skills, cracking codes, and leveling up every day.
-
 💡 I’m all about finding the right solution, not just the quickest fix. The real fun is in solving the problem the smart way, not just the easy way!
+
+🌱 On a never-ending quest through the world of computer science— sharpenig my skills, cracking codes, and leveling up every day.
 
 🤝 I’m always game for teaming up, sharing ideas, and and diving into adventures.
 
