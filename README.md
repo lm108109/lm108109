@@ -1,6 +1,6 @@
 Hi, I’m @lm108109.
 
-🚀 Aspiring Computer Science Engineer
+🚀 Computer Science Engineer, Aspiring Data Scientist
 
 ✨ Passionate About Learning & Innovation
 
